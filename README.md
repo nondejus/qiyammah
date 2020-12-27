@@ -1,1 +1,6 @@
 # qiyammah
+
+5 F A 9    復 return; repeat; repeatedly
+6 D 3 B    活 live, exist, survive; lively
+7 6 7 D    白 white; pure, unblemished; bright
+5 9 2 9    天 sky, heaven; god, celestial
